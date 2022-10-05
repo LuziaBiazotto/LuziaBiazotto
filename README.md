@@ -1,6 +1,6 @@
 - 👋 Olá, eu @LuziaBiazotto
-- 👀 Interessada em aprender
-- 🌱 Professora
+- 👀 Meus hobbies são pedalar e praticar atividades físicas
+- 🌱 Professora da Rede Estadual de Ensino
 - 💞️ Gostaria de colaborar com o aprendizado 😊
 - 📫 Amo Ler 📖
 
